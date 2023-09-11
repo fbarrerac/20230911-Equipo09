@@ -1,8 +1,8 @@
-**Luis Píriz**
+# **Luis Píriz**
 
-Uruguay
+## Uruguay
 
-Uruguay ^_^
+Uruguay 😊
 
 Fernando Barrera
 Luis Píriz
