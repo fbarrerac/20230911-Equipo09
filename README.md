@@ -1,6 +1,2 @@
-Fernando Barrera
-Luis Píriz
-Darwin Cardemil
-Aylin Rojas
-July Ariza
-Gisela Pallanch
+**darwin cardemil**
+pais nacimiento: Chile 😁
