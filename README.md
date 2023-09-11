@@ -1,5 +1,2 @@
 Fernando Barrera
-
-
-
 July Ariza
